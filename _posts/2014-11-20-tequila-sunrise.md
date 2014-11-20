@@ -7,6 +7,9 @@ categories: main
 
 ## Ingredients
 
+tequila
+tobasco sauce
 
+voila - prairie fire!
 
 ## Directions
